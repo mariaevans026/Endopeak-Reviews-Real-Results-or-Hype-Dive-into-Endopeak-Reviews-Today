@@ -4,7 +4,6 @@
 <h2><a href="https://healthsupplement.cc/recommended/endopeaksh"><b>Buy From Official Website (Get Up to 75% Discount)</b></a></h2>
 &nbsp;
 
-<img class="aligncenter size-full wp-image-2433" src="https://healthsupplement.cc/wp-content/uploads/2024/06/Endopeak-Review-scaled.jpg" alt="" width="2560" height="1440" />
 
 <h5><b>OVERVIEW :</b></h5>
 <h5><b>🟢 Product Name: Endopeak</b></h5>
